@@ -10,5 +10,3 @@ Jack brachte dabei viele in einen wahren Rausch.
 
 > Drink mich und ich mach Dich gluecklich
 
-
-<img src="https://de.wikipedia.org/wiki/Jack_Daniel’s#/media/Datei:Jack_Daniel's_Old_No._7_1,14l.jpg"/>
