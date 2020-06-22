@@ -8,3 +8,4 @@ Jack brachte dabei viele in einen wahren Rausch.
 * sonnige Farbe
 * Edler Stoff
 
+> Drink mich und ich mach Dich gluecklich
