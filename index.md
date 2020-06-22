@@ -4,7 +4,6 @@ Dieser Charakter hat schon viele Hollywood-Rollen gespielt und mehrere Auszeichn
 Jack brachte dabei viele in einen wahren Rausch.
 
 ## Eigenschaften
-
 - süffig
 - alt, mindestens 25 Jahre
 - sonnige Farbe
